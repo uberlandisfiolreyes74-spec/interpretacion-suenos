@@ -1,2 +1,13 @@
-# Símbolos de animales en sueños ## perros ** significado:lealtad, protecci
-ón ** cotectos comunes:soñar con un perro amigable indica compañerismo ## gato**significado**independencia , misterio, intuición**gasto negro:pude significar cambios o advertencia ##: pájaros **significado:** Libertad, espiritualidad , independencia 
+
+# Símbolos de animales en sueños
+
+## Perro
+**Significado:** Lealtad, protección, amistad  
+**Contextos comunes:** Soñar con un perro amigable indica compañerismo
+
+## Gato
+**Significado:** Independencia, misterio, intuición  
+**Gato negro:** Puede significar cambios o advertencia
+
+## Pájaros
+**Significado:** Libertad, espiritualidad, mensajes
